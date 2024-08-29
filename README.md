@@ -1,4 +1,4 @@
-# HAPN_NaghulPranav_RA2311003010802
+# HAPN_Naghul Pranav K R_RA2311003010802
 
 HAPN
 Team Member Details
